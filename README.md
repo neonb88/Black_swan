@@ -1,2 +1,3 @@
 # Black_swan
-The smartest book I know.  If I am smart, I will make a life and career around such ideas
+The best book I know.
+If I am wise, I will make a life and career around such ideas
